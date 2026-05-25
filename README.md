@@ -1,0 +1,1 @@
+# Upx3-Lixeira-Inteligente
